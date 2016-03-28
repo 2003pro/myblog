@@ -1,1 +1,0 @@
-This is the private blog of Jipeng Zhang.
